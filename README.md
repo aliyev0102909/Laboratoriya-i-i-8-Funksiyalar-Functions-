@@ -1,0 +1,1 @@
+# Laboratoriya-i-i-8-Funksiyalar-Functions-
